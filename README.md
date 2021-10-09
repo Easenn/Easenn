@@ -1,28 +1,3 @@
 Guess what
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 chicken butt
