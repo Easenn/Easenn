@@ -1,3 +1,0 @@
-Guess what
-
-chicken butt
